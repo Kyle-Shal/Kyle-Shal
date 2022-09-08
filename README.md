@@ -5,7 +5,7 @@
 - 📫 How to reach me for going on new adventures:
   - @kyle.shal on instagram
   - @shalkyle on twitter
-  - Kyle Shal on Facebook
+  - Kyle Shal on Facebook and YouTube
   - kashal@mun.ca 
 
 <!---

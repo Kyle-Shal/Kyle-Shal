@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kyle-Shal
 - 👀 I’m interested in programming, inventing, learning, instruments, sports, discovering new things, playing chess, video editing, new technology releases, meditation, organization, productivity apps, and going on new adventures
-- 🌱 I’m currently available for work term positions
+- 🌱 I’m currently available for intern positions
 - 💞️ I’m looking to collaborate on projects for competitions or hackathons
 - 📫 How to reach me for going on new adventures:
   - @kyle.shal on instagram
